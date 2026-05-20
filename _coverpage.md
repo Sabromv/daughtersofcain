@@ -12,11 +12,11 @@
 
 
 
-### Proyecto realizado por:
+### Proyecto realizado por: Sabrina Martín Vílchez
 
 ### Enlace a Itch.io: ____________
 
-#### Facultad de Bellas Artes. Universidad de Granada, 202X
+#### Facultad de Bellas Artes. Universidad de Granada, 2026
 
 
 
